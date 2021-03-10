@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Web Designing, Web Developer**
 
-- 🤔 Looking upto **I’m looking to help with U designs for Website.**
+- 🤔 Looking upto **I’m looking to help with UI designs for Website.**
 
 - 📫 How to reach me **hitakshi.vasoya@gmail.com**
 
